@@ -1,6 +1,6 @@
 🍡 call me **akio**, **anonymous**, **anon** or any !!
 
-🎒 it・its[(+)](https://en.pronouns.page/@ddd24591633) ノ 12-18 ノ 日本語/ENG ノ adhd
+🎒 it・its[(+)](https://en.pronouns.page/@ddd24591633) ノ 12-18 ノ 日本語/ENG ノ autism ノ adhd
 
 🍼 **cuddling** + **hugging** freely　whisper 2 interact
 
