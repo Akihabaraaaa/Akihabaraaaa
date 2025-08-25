@@ -1,18 +1,23 @@
-## works !!
-- ⭐Demon slayer(kimetsu no yaiba)
-- ⭐Friday night funkin'
-- ⭐Dave and Bambi
-- ⭐Golden apple edition
-- My little pony
-- ⭐Needy streamer overload
-- ⭐Dragon quest series
-- Roblox
-- Blue box
-- ONE PIECE FILM RED
-- Seven deadly sins
-- Two on ice
-- ENA(joelg)
+## interested !!
+- ⭐Demon Slayer
+- ⭐Monogatari eries
+- ⭐️PMMM(also the side story)
+- ⭐️Dandadan
+- Friday Night Funkin'
+- Needy Streamer Overload
+- The Disastrous Life of Saiki K
+- Assassination Classroom
+- The Melancholy of Haruhi Suzumiya
+- My Hero Academia
+- One Piece
+- Nichijou
+- AKEBI's sailor uniform
+- Asobi Asobase
+- Vocaloid
 
-Those marked with a ⭐ are works I have particular knowledge of. With these works, I can do some core talking and roleplaying. Please interact if you're fan of them!!
-## shippings !!
-I love all shippings except for proshippings. If I had to choose, I'd say sanekana, sanegiyu, and obamitsu.
+I'm now in DS, PMMM, Watanabe Akio's animation design work(like monogatari or nurse witch komugi etc) fandom and I like drawing them so much !!
+
+## about shippings !!
+Please note that I would rather like to treat as just combis than as romantic shipping, because I personally don't think that every shipping necessarily has to have a typical view of love.
+But in the case of proshipping, it goes without saying that the answer is NO. An ethically and healthily questionable relationship is nothing but violence.
+With the above in mind, I love 🍃🌊, 🍃🐍, 🍃🍡, 🦋🍡, 🍃🐍🍡, 🍃🐍🌊(position doesn't matter) 
