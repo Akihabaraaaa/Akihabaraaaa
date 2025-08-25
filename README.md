@@ -1,6 +1,6 @@
 🫧 call me ***Nanami*** , ***Akio*** or any !!
 
-🧴 she・her[(+)](https://en.pronouns.page/@akihabaraaa)　18　artist・2d animator　日本語/ENG
+🧴 she・her[(+)](https://en.pronouns.page/@akihabaraaa)　18　2d animator　日本語/ENG
 
 🖇️ **cuddling** + **hugging** me　whisper 2 interact
 
