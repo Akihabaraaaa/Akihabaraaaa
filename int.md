@@ -19,5 +19,7 @@ I'm now in DS, PMMM, Watanabe Akio's animation design work(like monogatari or nu
 
 ## about shippings !!
 Please note that I would rather like to treat as just combis than as romantic shipping, because I personally don't think that every shipping necessarily has to have a typical view of love.
-But in the case of proshipping, it goes without saying that the answer is NO. An ethically and healthily questionable relationship is nothing but violence.
+
+But in the case of proshipping, it goes without saying that the answer is NO.
+
 With the above in mind, I love 🍃🌊, 🍃🐍, 🍃🍡, 🦋🍡, 🍃🐍🍡, 🍃🐍🌊(position doesn't matter) 
