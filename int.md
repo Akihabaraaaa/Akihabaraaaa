@@ -13,7 +13,6 @@
 - My Hero Academia
 - One Piece
 - Nichijou
-- AKEBI's sailor uniform
 - Asobi Asobase
 - Vocaloid
 
