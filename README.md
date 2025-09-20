@@ -1,5 +1,7 @@
 　　　　　 　　![](https://komarev.com/ghpvc/?username=akihabaraaaa&color=grey&plastic)
+
 dead images
+
 ![a](https://cdn.discordapp.com/attachments/1028988204986138735/1409535673328996352/15_20250825225118.png?ex=68adbbe4&is=68ac6a64&hm=787d1d87c095a46b11490f7048aeb0017099bb1fc8fe1639b726d96c3ce7c4e1)
 
 🫧 call me ***Nanami*** , ***Akio*** or any !!
