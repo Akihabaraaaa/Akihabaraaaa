@@ -12,6 +12,8 @@
 - The Melancholy of Haruhi Suzumiya
 - My Hero Academia
 - One Piece
+- Psycho-pass
+- Hunter×Hunter
 - Nichijou
 - Asobi Asobase
 - Vocaloid
