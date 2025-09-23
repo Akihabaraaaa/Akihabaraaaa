@@ -1,7 +1,7 @@
 　　　　　 　　![](https://komarev.com/ghpvc/?username=akihabaraaaa&color=grey&plastic)
 
 ![a](https://64.media.tumblr.com/bcce98be50fea3ba9c43d45ac0fce6b1/34c030bcc2361e51-cc/s400x600/8a59b0958905a5cde55a63c0c159569c2291b477.pnj)</br>
-![a](https://i.pinimg.com/originals/54/03/14/5403147ac899c867dea610582b74e06b.gif)
+![a](https://ul.h3z.jp/DG0vrULx.gif)
 
 > call me ***Nanami*** , ***Akio*** or any !!
 
