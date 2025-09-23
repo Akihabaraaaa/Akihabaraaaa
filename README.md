@@ -1,14 +1,17 @@
 　　　　　 　　![](https://komarev.com/ghpvc/?username=akihabaraaaa&color=grey&plastic)
 
-![a](https://cdn.discordapp.com/attachments/1028988204986138735/1409535673328996352/15_20250825225118.png?ex=68adbbe4&is=68ac6a64&hm=787d1d87c095a46b11490f7048aeb0017099bb1fc8fe1639b726d96c3ce7c4e1)
+![a](https://64.media.tumblr.com/bcce98be50fea3ba9c43d45ac0fce6b1/34c030bcc2361e51-cc/s400x600/8a59b0958905a5cde55a63c0c159569c2291b477.pnj)</br>
+![a](https://i.pinimg.com/originals/54/03/14/5403147ac899c867dea610582b74e06b.gif)
 
-🫧 call me ***Nanami*** , ***Akio*** or any !!
+> call me ***Nanami*** , ***Akio*** or any !!
 
-🧴 she・her[(+)](https://en.pronouns.page/@akihabaraaa)　18　2d animator　日本語/ENG
+> she・her[(+)](https://en.pronouns.page/@akihabaraaa)　18　2d animator　日本語/ENG
 
-🖇️ **cuddling** + **hugging** me　whisper 2 interact
+> **c+h**　whisper 2 interact
 
-![a](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/86e69691-c60c-4b13-82d7-c0b6a980c1e8/d7qr4sy-4cd74e68-70a6-4fc6-bd2a-3bca6184d050.png/v1/fit/w_439,h_4,q_70,strp/simple_pink_divider_by_seii_a_d7qr4sy-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NCIsInBhdGgiOiJcL2ZcLzg2ZTY5NjkxLWM2MGMtNGIxMy04MmQ3LWMwYjZhOTgwYzFlOFwvZDdxcjRzeS00Y2Q3NGU2OC03MGE2LTRmYzYtYmQyYS0zYmNhNjE4NGQwNTAucG5nIiwid2lkdGgiOiI8PTQzOSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Vdk0fSpi1OntLgARp2mOcWrskxlQyYG0942u9uHbmRc)<br/>
-　　　 　　　　[**001**](https://github.com/JUNE4591633/JUNE4591633/blob/main/int.md)・[**002**](https://github.com/JUNE4591633/JUNE4591633/blob/main/byi.md)・[**003**](https://github.com/JUNE4591633/JUNE4591633/blob/main/dni.md)<br/>
-![a](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/86e69691-c60c-4b13-82d7-c0b6a980c1e8/d7qr4sy-4cd74e68-70a6-4fc6-bd2a-3bca6184d050.png/v1/fit/w_439,h_4,q_70,strp/simple_pink_divider_by_seii_a_d7qr4sy-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NCIsInBhdGgiOiJcL2ZcLzg2ZTY5NjkxLWM2MGMtNGIxMy04MmQ3LWMwYjZhOTgwYzFlOFwvZDdxcjRzeS00Y2Q3NGU2OC03MGE2LTRmYzYtYmQyYS0zYmNhNjE4NGQwNTAucG5nIiwid2lkdGgiOiI8PTQzOSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Vdk0fSpi1OntLgARp2mOcWrskxlQyYG0942u9uHbmRc)<br/>
-![a](https://cdn.discordapp.com/attachments/1028988204986138735/1409533789742301184/b0d9f9b89e4b899130e0c959b469e55e.jpg?ex=68adba23&is=68ac68a3&hm=748aae77f53d68122df75bef3d64566323a4e6ae7ef7f046afe4324582c072c1) why are discord images dead so quickly
+![a](https://64.media.tumblr.com/a2898ffeb2f6e8b0cc2822adb2c8655c/34c030bcc2361e51-c6/s400x600/9f38304dd9f89bb61f24ceb9fbd8c96b4ed8f509.pnj)
+
+　 　　　 　　　　[**001**](https://github.com/JUNE4591633/JUNE4591633/blob/main/int.md)・[**002**](https://github.com/JUNE4591633/JUNE4591633/blob/main/byi.md)・[**003**](https://github.com/JUNE4591633/JUNE4591633/blob/main/dni.md)
+
+![a](https://64.media.tumblr.com/705b0415ab2160e0aa6a1a34250da99c/08ee73e73f2c4e47-c5/s400x600/2ea2beed0297b3ee1d4a377c58d95cc2b5c93870.pnj)<br/>
+![a](https://64.media.tumblr.com/f38fcc07d9d2274ba26eb9e1056b2b15/34c030bcc2361e51-0e/s400x600/ba812ff50c0d3ef60d19d237d36201c812900c90.pnj) 
