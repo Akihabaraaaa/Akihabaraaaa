@@ -1,4 +1,4 @@
-![a](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/86e69691-c60c-4b13-82d7-c0b6a980c1e8/d7qr4sy-4cd74e68-70a6-4fc6-bd2a-3bca6184d050.png/v1/fit/w_439,h_4,q_70,strp/simple_pink_divider_by_seii_a_d7qr4sy-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NCIsInBhdGgiOiJcL2ZcLzg2ZTY5NjkxLWM2MGMtNGIxMy04MmQ3LWMwYjZhOTgwYzFlOFwvZDdxcjRzeS00Y2Q3NGU2OC03MGE2LTRmYzYtYmQyYS0zYmNhNjE4NGQwNTAucG5nIiwid2lkdGgiOiI8PTQzOSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Vdk0fSpi1OntLgARp2mOcWrskxlQyYG0942u9uHbmRc)
+![a](https://camo.githubusercontent.com/a5145ae1bbd7e383ce223864e9e55d0f89d3e3b3d7acef15b58c281e09d29f74/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f61323839386666656232663665386230636332383232616462326338363535632f333463303330626363323336316535312d63362f73343030783630302f396633383330346464396638396262363166323463656239666264386339366234656438663530392e706e6a)
 
 > int !!
 - **🤍Demon Slayer**
@@ -12,21 +12,11 @@
 - The Melancholy of Haruhi Suzumiya
 - My Hero Academia
 - One Piece
-- Psycho-pass
-- Hunter×Hunter
 - Nichijou
 - Asobi Asobase
 - Vocaloid
 
-`I'm now in DS, PMMM, Watanabe Akio's animation design work(like monogatari or nurse witch komugi etc) fandom and I like drawing them so much !!`
+``I'm now in DS, PMMM, Watanabe Akio's animation design work(like monogatari or nurse witch komugi etc) fandom and I like drawing them so much !!``</br>
+```Also I'm now watching Hunter×Hunter, Psycho-pass, Gintama, Soul Eater, Chainsawman and a lot.```</br>
 
-![a](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/86e69691-c60c-4b13-82d7-c0b6a980c1e8/d7qr4sy-4cd74e68-70a6-4fc6-bd2a-3bca6184d050.png/v1/fit/w_439,h_4,q_70,strp/simple_pink_divider_by_seii_a_d7qr4sy-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NCIsInBhdGgiOiJcL2ZcLzg2ZTY5NjkxLWM2MGMtNGIxMy04MmQ3LWMwYjZhOTgwYzFlOFwvZDdxcjRzeS00Y2Q3NGU2OC03MGE2LTRmYzYtYmQyYS0zYmNhNjE4NGQwNTAucG5nIiwid2lkdGgiOiI8PTQzOSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Vdk0fSpi1OntLgARp2mOcWrskxlQyYG0942u9uHbmRc)
-
-> abt shippings !!
-
-`Please note that I would rather like to treat as just combis than as romantic shipping,because I personally don't think that every shipping necessarily has to have a typical view of love.`<br/>
-`But in the case of proshipping, it goes without saying that the answer is NO.`
-
-`I love 🍃🌊, 🍃🐍, 🍃🍡, 🦋🍡, 🍃🐍🍡, 🍃🐍🌊 in DS.(position doesn't matter)`
-
-![a](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/86e69691-c60c-4b13-82d7-c0b6a980c1e8/d7qr4sy-4cd74e68-70a6-4fc6-bd2a-3bca6184d050.png/v1/fit/w_439,h_4,q_70,strp/simple_pink_divider_by_seii_a_d7qr4sy-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NCIsInBhdGgiOiJcL2ZcLzg2ZTY5NjkxLWM2MGMtNGIxMy04MmQ3LWMwYjZhOTgwYzFlOFwvZDdxcjRzeS00Y2Q3NGU2OC03MGE2LTRmYzYtYmQyYS0zYmNhNjE4NGQwNTAucG5nIiwid2lkdGgiOiI8PTQzOSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Vdk0fSpi1OntLgARp2mOcWrskxlQyYG0942u9uHbmRc)
+![a](https://camo.githubusercontent.com/c9790c43dd126295cf1faecf08b7614029f77ddfd42ed0d41bc1ea0baf1d0b00/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37303562303431356162323136306530616136613161333432353064613939632f303865653733653733663263346534372d63352f73343030783630302f326561326265656430323937623365653164346133373763353864393563633262356339333837302e706e6a)
