@@ -1,5 +1,7 @@
 Hiatus because I'm starting to feel that my English reading comprehension is declining and that PonyTown is becoming uncomfortable. Well, it's just that role-playing and real-time chat apps just weren't for me.</br>
 If you would like to talk on Discord, please send a friend request to my Discord ID (all4unemi).
+
+But I might play a little bit when I feel like it.
 　　　　　　![](https://komarev.com/ghpvc/?username=akihabaraaaa&color=grey&plastic)
 
 ![a](https://64.media.tumblr.com/bcce98be50fea3ba9c43d45ac0fce6b1/34c030bcc2361e51-cc/s400x600/8a59b0958905a5cde55a63c0c159569c2291b477.pnj)</br>
